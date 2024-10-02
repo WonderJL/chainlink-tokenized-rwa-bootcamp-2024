@@ -1,0 +1,1 @@
+https://cll-devrel.gitbook.io/tokenized-rwa-bootcamp-2024
